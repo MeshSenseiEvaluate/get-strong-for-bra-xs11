@@ -1,4 +1,4 @@
-# 
+# Experience get strong for brainrots like never before with advanced Script for get strong for brainrots, the #1 Script. Includes aimbot and teleport
 
 
 
